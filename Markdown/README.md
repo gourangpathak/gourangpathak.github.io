@@ -1,7 +1,7 @@
 Gourang Pathak
 ==============
 
-![Gourang Pathak](img/../../img/Id%20card%20Photo.jpg)
+![Gourang Pathak](img/../../img/profilepic.jpeg)
 
 * * *
 
